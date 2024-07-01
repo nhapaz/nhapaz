@@ -7,6 +7,12 @@ NhapAZ cung cấp dịch vụ tư vấn chuyên nghiệp, giúp khách hàng tì
 Đặt Hàng Hộ tại https://nhapaz.com/
 Với dịch vụ đặt hàng hộ, NhapAZ thay mặt khách hàng thực hiện các giao dịch mua sắm, đảm bảo quá trình đặt hàng diễn ra suôn sẻ và an toàn.
 
+Các mạng xã hội tìm hiểu ngay:
+https://x.com/nhapazcom
+https://about.me/nhapaz/
+https://www.behance.net/nhapaz
+https://www.linkedin.com/in/nhapaz-com/
+https://tinhte.vn/profile/jinmig.3029304/
 <!---
 nhapaz/nhapaz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
